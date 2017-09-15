@@ -1,1 +1,2 @@
-# cdxviii.github.io
+## Charles Donatello XVIII says...
+[Go-qualia für Iori - Taten statt Worte!](http://cdxviii.minase-concern.com/20140505.zip) (2017 +1 edition)
